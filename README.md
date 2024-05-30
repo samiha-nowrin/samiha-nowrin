@@ -1,3 +1,3 @@
-## Hi its a me
+## hii its a me, nikita
 
 - 🌱 studying computer science and engineering...
